@@ -1,2 +1,2 @@
 # My-projects
-I have upload my projects (till July 2025) here.
+I have uploaded my projects (till July 2025) here.
